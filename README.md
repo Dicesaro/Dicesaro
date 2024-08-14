@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-Senati 🌀<br>Diseño / Desarrollo Web 💻🎨<br>Peru 🇵🇪<br><br>Minimalista ✨<br>
+Senati 🌀<br>Diseño / Desarrollo Web 💻🎨<br>Peru 🇵🇪<br>Minimalista ✨<br>
 
 
 ## 🌐 Socials:
